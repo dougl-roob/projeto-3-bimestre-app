@@ -1,0 +1,1 @@
+Agente escolheu o pokemon porque é daora 
